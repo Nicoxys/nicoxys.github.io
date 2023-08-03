@@ -1,1 +1,0 @@
-# easy-innovation-beta.github.io
